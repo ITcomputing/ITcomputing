@@ -10,5 +10,5 @@ __**Nos-réseaux sociaux :**__
 > Instagram : https://www.instagram.com/itcomputing.fr/
 > TikTok : https://www.tiktok.com/@itcomputing.fr 
 ---------------------------------------------------------------------------------
-> Site web: https://itcomputing.skynhost.com
+> Site web: https://itcomputing.skynhost.com (Out of service)
 > Serveur discord : https://discord.gg/k6eqRKr9GZ 
